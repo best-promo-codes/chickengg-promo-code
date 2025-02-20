@@ -1,5 +1,3 @@
-# chickengg-promo-code
-Chicken.GG Referral Code "csgobettings" – Up to 40% Rakeback
 
 <h1>Chicken.GG Referral Code "csgobettings" – Get Up to 40% Rakeback in Rewards</h1>
 
