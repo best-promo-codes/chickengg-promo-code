@@ -16,7 +16,7 @@ If you're looking for an exciting way to maximize your earnings while enjoying y
     <td>Up to 40% Rakeback in Rewards</td>
   </tr>
   <tr>
-   <td>➡️ RoChicken.GGobet Bonus Code</td>
+   <td>➡️ Chicken.GG Bonus Code</td>
     <td>CSGOBETTINGS</td>
     <td>Get Up to 40% Rakeback</td>
   </tr>
